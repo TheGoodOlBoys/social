@@ -1,5 +1,3 @@
-# social
-digiassetX
 ## Contact 📘
 
 - Email: [thegoodolboys.official@gmail.com](mailto:thegoodolboys.official@gmail.com)
